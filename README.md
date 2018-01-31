@@ -1,2 +1,3 @@
 # homepage
-Something I whipped up for no good reason
+forgot to put something substantial here
+lel
